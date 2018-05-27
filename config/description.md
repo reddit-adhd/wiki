@@ -1,0 +1,1 @@
+A place where people with ADHD can interact with each other exchanging stories, struggles, and strategies. Weekly threads to plan and notice the positive in our lives. Many of the ~150,000+ people express they 'feel at home' and 'finally found a place where people understand them'.
