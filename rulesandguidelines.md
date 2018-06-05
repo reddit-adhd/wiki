@@ -8,7 +8,7 @@
 
 4. **Memes and media content must be part of a greater discussion.** Take fluff and #justadhdthings to /r/adhdmeme. We have enough distractions here!
     
-5. **Studies, AMAs, Q&A, and similar from healthcare providers and researchers require prior mod approval.** [Please message the mods.](https://www.reddit.com/message/compose?to=%2Fr%2FADHD)
+5. **Studies, AMAs, Q&A, and similar from healthcare providers and researchers require prior mod approval.** Please review [our policy on studies and more](https://reddit.com/r/adhd/wiki/surveys) and if applicable [please message the mods.](https://www.reddit.com/message/compose?to=%2Fr%2FADHD)
 
 ***
 
@@ -22,6 +22,6 @@
 
 * **No discussion of recreational use and abuse of drugs.** This includes taking more medication than prescribed, and taking medications that are not known to treat ADHD.
 
-* **No conspiracy theories, pseudoscience, and alternative medicine.** This is not the subreddit to debate if ADHD is real. This is also not the subreddit to talk about things like homeopathy for ADHD, that ADHD is a positive adaptation from the hunter-gatherer days, and more.
+* **No conspiracy theories, pseudoscience, and alternative medicine.** This is not the subreddit to debate if ADHD is real. This is also not the subreddit to talk about things like homeopathy for ADHD, that ADHD is a positive adaptation from the hunter-gatherer days, etc.
 
 * **No advertising.** Not even "free" items. Offending posts will be removed and the posters banned.
