@@ -8,7 +8,7 @@
 
 4. **Memes and media content must be part of a greater discussion.** Take fluff and #justadhdthings to /r/adhdmeme. We have enough distractions here!
     
-5. **Studies, AMAs, Q&A, and similar from healthcare providers and researchers require prior mod approval.** Please review [our policy on studies and more](https://reddit.com/r/adhd/wiki/surveys) and if applicable [please message the mods.](https://www.reddit.com/message/compose?to=%2Fr%2FADHD)
+5. **Studies, AMAs, Q&A, and similar from healthcare providers and researchers require prior mod approval.** Please review [our policy on studies and more](https://reddit.com/r/adhd/wiki/verification) and if applicable [please message the mods.](https://www.reddit.com/message/compose?to=%2Fr%2FADHD)
 
 ***
 
