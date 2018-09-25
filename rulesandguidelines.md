@@ -1,4 +1,6 @@
-﻿## /r/ADHD posting rules!
+Note that this page should not be considered a complete list of rules. Moderators will remove any post, at their discretion, that they feel is against the rules or does not belong on /r/adhd. The rules should also be considered fluid as our interpretation of them may change over time. Finally, *no rules lawyering*.
+
+## /r/ADHD posting rules!
 
 1. **[Read the FAQ](/r/ADHD/wiki) and [search /r/adhd](/r/ADHD/search?q=adhd+keywords&restrict_sr=on)** before posting!
 
