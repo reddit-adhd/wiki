@@ -1,4 +1,4 @@
-Note that this page should not be considered a complete list of rules. Moderators will remove any post, at their discretion, that they feel is against the rules or does not belong on /r/adhd. The rules should also be considered fluid as our interpretation of them may change over time. Finally, *no rules lawyering*.
+Note that this page should not be considered a complete list of rules. Moderators will remove any post or comment, at their discretion, that they feel is against the rules or does not belong on /r/adhd. The rules should also be considered fluid as our interpretation of them may change over time. Finally, *no rules lawyering*.
 
 ## /r/ADHD posting rules!
 
